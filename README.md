@@ -10,7 +10,7 @@ description: Quick Hack for newbie to Ipswich
 
 **Transfer money to India  or Foreign quick account** 
 
-\*\*\*\*[http://transferwise.com](http://transferwise.com/i/abhinavs66)
+[http://transferwise.com](http://transferwise.com/i/abhinavs66)
 
 **Best Economical Energy Vendor** 
 
